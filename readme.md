@@ -1,1 +1,1 @@
-https://garbagevehicletracker-org.github.io/page5/
+https://priyamkundu01.github.io/page5/
